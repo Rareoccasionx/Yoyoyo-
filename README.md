@@ -18,3 +18,5 @@ if I make you upset or uncomfortable... tell me I'm bad at reading feelings [at 
 call me out on my misspellings idc do whatever 
 
 《if you wish to know more ask !!! or ask my friends idc.. 》
+
+my partner/lover type ig : (I don't really care who I date really.. umm idk if im into men or women it's based off personality..)
