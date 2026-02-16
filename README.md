@@ -1,4 +1,4 @@
-♡ ;" 𝘊𝘢𝘯 𝘸𝘦 𝘨𝘰 𝘩𝘰𝘮𝘦 𝘯𝘰𝘸?..it's getting later baby<3.."
+♡ ;" you call the shots babe...I just wanna be yours "
 
 yoyoyo! I'm meo you can call me basically anything idc really..
 
@@ -17,6 +17,6 @@ if I make you upset or uncomfortable... tell me I'm bad at reading feelings [at 
 
 call me out on my misspellings idc do whatever 
 
-《if you wish to know more ask !!! or ask my friends idc.. 》
+《if you wish to know more ask !!! or ask my friends idm)
 
-my partner/lover type ig : (I don't really care who I date really.. umm idk if im into men or women it's based off personality..)
+idk if im interested in romance but whatever 💤
